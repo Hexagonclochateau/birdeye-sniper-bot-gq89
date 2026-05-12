@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with premium birdeye sniper bot | degen-coin-scanning + blockchain-scanning, the #1 birdeye sniper bot. Includes degen-coin-scanning and blockchain-scanning
 
 
 
